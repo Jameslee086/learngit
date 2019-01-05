@@ -17,3 +17,10 @@ HAHA
 can you tell me how to catch your girlfriend?
 
 git tracks changes a files.
+supid boss still prefers SVN.
+if you think you are right, jut do it ,OK?
+.
+
+
+.
+hello, my dear friend
